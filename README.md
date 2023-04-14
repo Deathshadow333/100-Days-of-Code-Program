@@ -4,25 +4,25 @@
 Hello Everyone, I have completed 100 Days of Coding [click here](https://www.linkedin.com/posts/gsharanraghav8_100-days-code-links-activity-6984963892170952704-w5ZP?utm_source=share&utm_medium=member_desktop)
 
 # DayWise Code Link
-Day-1 : https://www.linkedin.com/posts/gsharanraghav8_100daysofcodechallenge-codeincommunity-codein100daysofcode-activity-6962710926064046080-7iM9?utm_source=share&utm_medium=member_desktop
+Day-1 : https://tinyurl.com/yc3yp8nz
 
-Day-2 : https://www.linkedin.com/posts/gsharanraghav8_100daysofcodechallenge-codeincommunity-codein100daysofcode-activity-6962712121872715777-LPU7?utm_source=share&utm_medium=member_desktop
+Day-2 : https://tinyurl.com/36rptcyc
 
-Day-3 : 
+Day-3 : https://tinyurl.com/5n6s54nx
 
-Day-4 : 
+Day-4 : https://tinyurl.com/yuwsvzek
 
-Day-5 : 
+Day-5 : https://tinyurl.com/mwadcp5c
 
-Day-6 : 
+Day-6 : https://tinyurl.com/5n8twecf
 
-Day-7 : 
+Day-7 : https://tinyurl.com/3uz4ajcy
 
-Day-8 : 
+Day-8 : https://tinyurl.com/ymuhpbr7
 
-Day-9 : 
+Day-9 : https://tinyurl.com/3fsmc67c
 
-Day-10 : 
+Day-10 : https://tinyurl.com/y73d99tb
 
 Day-11 : 
 
